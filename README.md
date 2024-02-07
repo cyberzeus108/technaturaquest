@@ -18,7 +18,7 @@ At TechNatureQuest, personal development and community advancement are at the he
 TechNatureQuest is more than just a platform; it's a community of passionate individuals who believe in making a positive impact through technology and wellness. Here's how you can get involved:
 
 - **Collaborative Projects:** Contribute to projects that blend technology with wellness, bringing innovative solutions to life.
-- **Innovative Discussions:** Join the conversation on our [GitHub Discussions](#) page, where we tackle the latest topics in tech and health.
+- **Innovative Discussions:** Join the conversation on our [WhatsApp Discussions Group](https://chat.whatsapp.com/Bii3KhlKqFVIsrn4aiGD4P)) page, where we tackle the latest topics in tech and health.
 
 ## Support and Subscribe
 
